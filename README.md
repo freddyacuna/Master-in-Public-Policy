@@ -1,1 +1,1 @@
-# Masters-in-Public-Policy
+# Master-in-Public-Policy
